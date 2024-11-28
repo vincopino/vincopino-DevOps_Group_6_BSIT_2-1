@@ -1,1 +1,0 @@
-# vincopino-DevOps_Group_6_BSIT_2-1
